@@ -1,0 +1,1 @@
+# Projeto_IFTech_2026_IFPRCuida
